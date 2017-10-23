@@ -1,0 +1,1 @@
+# alaminsk.github.io
